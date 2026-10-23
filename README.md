@@ -1,4 +1,4 @@
-### Varun Bhavin Shah
+### Varun Shah
 
 **B.Tech in Mathematics & Computing @ IIT Delhi** (CGPA: 9.79/10.0, Dept. Rank 13)
 
